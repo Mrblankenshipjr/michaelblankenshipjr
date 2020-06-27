@@ -1,2 +1,0 @@
-# michaelblankenshipjr
-Personal Website
